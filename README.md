@@ -1,0 +1,5 @@
+-  Hi, I’m @CodyHasAppeared
+-  I’m interested in music 
+-  I’m currently learning guitar
+-  I’m looking to collaborate on coding
+-  How to reach me via email AWildCodyHasAppeared@gmail.com
